@@ -2,6 +2,8 @@
 
 ## Resumen Profesional 
 
+#### Chalco Estado de México. 
+
 **Experiencia**:
 
 -   Administradora en una PYME. (4 años)
