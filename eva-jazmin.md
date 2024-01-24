@@ -14,7 +14,7 @@
 ---
 **Educación:** 
 
--   Universidad Abierta y a Distancia de México En la carrera de Mercadotecnia Ineternacional. (Trunca)
+-   Universidad Abierta y a Distancia de México en la carrera de Mercadotecnia Internacional. (Trunca)
 
 -   Mujer Digital en el curso de Desarrollo web (En Curso)
 
