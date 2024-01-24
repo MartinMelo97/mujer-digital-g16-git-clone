@@ -31,9 +31,3 @@ UDEMY - Fundamentos de Programación.
 Correo: everg2022@outlook.com
 
 Linkedin: [www.linkedin.com/in/eva-jazmin]
-
-
-
-
-
-
