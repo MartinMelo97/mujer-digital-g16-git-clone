@@ -9,7 +9,7 @@
 -   Administradora en una PYME. (4 años)
 -   Vendedora Por Catalogo. (1 año) 
 -   Editora de Videos. (1 año) 
--   Diseñadora web (En curso)
+-   Diseñadora web. (En curso)
 
 ---
 **Educación:** 
